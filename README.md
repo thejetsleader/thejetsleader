@@ -1,5 +1,5 @@
 
-![test](https://file.garden/aMtpveXyKil5_gNo/riffpfp.png)
+![test](https://file.garden/aMtpveXyKil5_gNo/%E2%95%B0%E2%98%86%EF%B9%92Banners%20%E2%8A%B9%E2%81%BA%CB%96/%E2%95%B0%E2%98%86%EF%B9%92Personal%20%E2%8A%B9%E2%81%BA%CB%96/2026_04_28_0p1_Kleki.png)
 
   (☆▽☆)⠀elliott __ou__ callum !!⠀‿‿ ˖˚﹢﹕system && fickin -- he / they / star / it + mascneu terms 
   
@@ -35,4 +35,4 @@
 >
 > ❀ ° ₊ O3. riff lorton (west side story 2021) ★
 >
-> ❀ ° ₊ O4. tony wyzek (west side story 2021)
+> ❀ ° ₊ O4. tony wyzek (west side story 2021) ★
