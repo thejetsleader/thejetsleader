@@ -20,13 +20,15 @@
  ≻ ┄ #1 west side story fan. /srs (if you imply i am not/you are a bigger fan than me, you will be blocked). i also like musicals!! ask me about my interests!
 
   ≻ ┄ kinlist is below in case you don't want to int! all IDs!!
-  > ❀ ° ₊ O1. raphael walt (my next life as a villainess: all routes lead to doom!)
+  > ❀ ° ₊ O1. samuel fischer-lorton (oc, west side story 2021) 
 > 
-> ❀ ° ₊ O2. samuel fischer-lorton (oc, west side story 2021)
+> ❀ ° ₊ O3. leader of the Jets (conceptkin) 
 > 
-> ❀ ° ₊ O3. leader of the Jets (conceptkin)
+> ❀ ° ₊ O3. raphael walt (my next life as a villainess: all routes lead to doom!)
 > 
-> ❀ ° ₊ O4. various gang member conceptkin (pogue, greaser, hound, montague)
+> ❀ ° ₊ O4. jake park (dead by daylight)
+> 
+> ❀ ° ₊ O5. various gang member/family conceptkin (pogue, greaser, hound, montague, newsie)
 
  ≻ ┄ yume list is below as well! /fam yumes!! those w ★ are sibling yumes! don't mention if you also yume them please!!
  > ❀ ° ₊ O1. alex dempsey (wayward - netflix)
