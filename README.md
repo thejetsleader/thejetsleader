@@ -28,7 +28,9 @@
 > 
 > ❀ ° ₊ O4. jake park (dead by daylight)
 > 
-> ❀ ° ₊ O5. various gang member/family conceptkin (pogue, greaser, hound, montague, newsie)
+> ❀ ° ₊ O5. stacey (wayward)
+>
+> ❀ ° ₊ O6. various gang member/family conceptkin (pogue, greaser, hound, montague, newsie)
 
  ≻ ┄ yume list is below as well! /fam yumes!! those w ★ are sibling yumes! don't mention if you also yume them please!!
  > ❀ ° ₊ O1. alex dempsey (wayward - netflix)
